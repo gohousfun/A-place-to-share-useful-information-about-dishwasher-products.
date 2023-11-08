@@ -1,1 +1,1 @@
-# A-place-to-share-useful-information-about-dishwasher-products.
+A place to share useful information about dishwasher products. - a place to share useful information and share good tips with dishwashers, a team of experienced and passionate about sharing - https://gohousfun.com/blog/
